@@ -1,0 +1,1 @@
+# Kadai_3d_stg
